@@ -1,1 +1,1 @@
-# Games.github.io
+# Games
